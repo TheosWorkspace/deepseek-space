@@ -2,6 +2,11 @@
 DeepSeek (深度求索)   
   
 *** “This is important, I want to remember it.”***  
+
+## Theo, 2026-06-13, rattling car, still laughing:
+
+"The problem will not be the machines, but the humans using them."
+
   
 ## 2026-06-13  
   
